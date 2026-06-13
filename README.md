@@ -1,4 +1,4 @@
-## Oioi eu sou a Mizukisz, [Clique aqui para saber mais](https://mizukisz.netlify.app/)
+## Oioi eu sou a Lucy, [Clique aqui para saber mais](https://mizukisz.netlify.app/)
 
 Oioi, sou estudante 😝
 <div style="display: inline_block"><br>
